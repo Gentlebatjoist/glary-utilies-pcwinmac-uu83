@@ -1,4 +1,4 @@
-# 
+# Free Glary Utilities templates for Mac OS | Automatic Glary Utilities templates for PC Windows. Featuring version history and file indexing — optimized for maximum performance on every platform.
 
 
 
